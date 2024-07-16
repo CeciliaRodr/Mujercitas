@@ -1,1 +1,3 @@
+MUJERCITAS
+
 Mujercitas es una novela de la escritora estadounidense Louisa May Alcott publicada el 30 de septiembre de 1868, que trata la vida de cuatro niñas que, tras pasar la adolescencia con la Guerra Civil en los Estados Unidos como fondo, entre 1861 y 1865, se convierten en mujeres.
